@@ -1,3 +1,3 @@
 ⚡ Fun fact: I xRezer xD
 My discord>xRezer#2040
-My telegram @xRezer
+My telegram @TheRezer
