@@ -1,3 +1,5 @@
+<img align="left" width = 35% src="./photo2.png"> <br>
+
 ⚡ Fun fact: I xRezer xD
 My discord>xRezer#2040
 My telegram @TheRezer
